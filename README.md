@@ -1,2 +1,1 @@
-# GGJ2024
- 
+# GLOBAL GAME JAM 2024 // 5-7 Jun  
